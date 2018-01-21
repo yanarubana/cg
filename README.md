@@ -2,7 +2,7 @@
 ## 05/08/1999
 ### Higher School of Economics 
 ### FLACC, 1 year student
-### (в попытках наконец-то выучить английский и французский языки)
+#### (в попытках наконец-то выучить английский и французский языки)
 ## *[follow me on instagram](https://www.instagram.com/yana_rubana)*
 ## *[add me to friends](https://vk.com/yana_rubana)*
 ## *[read me on twitter](https://twitter.com/yana_rubana)*
